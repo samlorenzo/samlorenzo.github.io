@@ -14,7 +14,7 @@ Tech’s a big part of my world, but it’s not everything. A lot of what keeps 
 
 When I’m not knee deep in automation or infrastructure, you’ll probably catch me outside, running (marathons too), surfing, skating, or skiing fresh powder when winter hits. Basically, if there’s a board involved, I’m in.
 
-To unwind, I watch my favorite YouTubers, get into self improvement books, or just enjoy the little things, a good meal, a quiet sunrise, or a chill sunset. I’m definitely a Cancer, reflective, passionate, and always chasing meaningful moments.
+To unwind, I watch my favorite YouTubers, get into self improvement books, or just enjoy the little things, a good meal, a quiet sunrise, or a chill sunset. 
 
 Also, I’m super into personal finance and investing. I think building a future on purpose, whether through work or money goals, really matters.
 
